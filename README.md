@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @0t0san (Jackson Kern)
+- 👋 Hi, I’m @0t0san (Jackson Kern or Jakku)
 - 🌱 I’m currently learning Python, Javascript, and SQL Code.
 - 📫 How to reach me - Email Me at g00by1995@gmail.com or add me on discord "𝘺 𝘜 P 𝘕𝘜P#6669"
 
